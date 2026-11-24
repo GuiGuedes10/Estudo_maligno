@@ -1,47 +1,67 @@
-Baby, me dá sua mão
-Se tiver medo, vai em frente
-Que a vida é curta demais pra não ser vivida
-Se eu te ligar, promete que vai atender
-Eu conto as horas para eu ir poder te ver
-Se eu for pro baile, não tem graça sem você
-(Sem você não dá)
+(E aê, Xarão? Mais uma que vai dar bom)
+(Tá ligado o Leo? Haha, o Leo, o LeoZera)
 
-Não posso mudar o passado, mas posso prever o futuro
-São histórias diferentes, a dama e o vagabundo
-Seus pais não apoiava, vai ser nós dois contra o mundo
-Semelhança até na alma, um sentimento profundo
+Não gostava do menino
+Não pode ser coincidência
+Dizia que ia ser doutora
+E hoje te trombei de presença
+Vai fazer completo, porque hoje o chefe paga
+Não sou de fazer isso, mas hoje eu jogo na cara
+Quis levar uma, agora o pai tá com a bagaça
 
-Baby, me dá sua mão
-Se tiver medo, vai em frente
-Que a vida é curta demais para não ser vivida
-Seus olhos claros, seu sorriso, ela é perfeita
-Fez o mais cachorro entrar numa coleira
-A palavra eu te amo já não é suficiente
-Para explicar tudo que nós dois sente
-Eu mato e morro e vivo por essa menina
-Pra inveja alheia, aceita, ela é minha preferida
-Entenda, meu amor, ainda tô aprendendo a amar
-Te conheço em pouco tempo e posso falar
-Se cair na mesmice, eu vou me reinventar
-E, ao longo do tempo, eu posso te provar
-Minha lealdade, o compromisso e o respeito a ti
-Sou sua melhor aposta, pode confiar em mim
-Deixe eles falar enquanto nós dois vive a vida
-Seu coração tem cicatriz, eu curo as suas feridas
-Dentro dessa Porsche, uma dose de adrenalina
-Uma combustão perfeita, igual fogo e gasolina
-Eu sou maloqueiro, e ela toda patricinha
-Mas que ironia, mas quem diria?
-Se me perguntarem se eu me arrependo
-Nem um pouco, eu faria tudo de novo
-Conquistaria de novo, te provava tudo em dobro
-Te entregava flores de novo, de novo
-E até o mais chucro com a sua gata fica tranquilo
-Abro a porta pra você entrar no meu esportivo
-São dois mundos, dois corpos, uma cama e um vinho
+(Dança e vem, dança e vem) oi, pra tomar
+Ela vem de longe pra sentar
+Quem diria que eu ia te trombar?
+Mais uma vez eu vou ter que te colocar
+Ah-ah-ah-ah-ah-ah, oi, pra tomar
+Ela vem de longe pra sentar
+Quem diria que eu ia te trombar?
+Mais uma vez eu vou ter que te colocar (aê, tá ligado)
 
-Baby, dá um sorriso pra mim
-Adoro seu cheiro, sempre perfumada
-Na sua boca, o gloss de pimenta
-Olha no meu olho, não mente por nada
-Essa noite tá bem longe do fim
+E essa eu conheço de antes, de antes de tudo
+Colocou peito e bunda grande, ficou bem mais chucra
+Não é a mesma de antes, época da escola
+Quer meter a mala, pera aí, só porque tá gostosa
+Seu peito naturalzinho já apertei
+Sua bunda não tão grande assim eu já sarrei
+Hoje se perde na balada, vive uma vida cara
+Mas, se me vê, fica sem graça
+Passa um filme na sua mente
+
+Não precisa mentir, eu sei que não tá bem
+Me vendo vivendo com outro alguém
+Mas a noite é foda, tem várias gostosa
+Você não é a única que senta bem
+
+Oi, oi, oi, oi, pra tomar
+Ela vem de longe pra sentar
+Quem diria que eu ia te trombar?
+Mais uma vez eu vou ter que te colocar
+Ah-ah-ah-ah-ah-ah
+
+Eu lembro bem
+Do dia que cê nem ligou pra mim
+Conheço bem
+Então não pode levar uma assim
+Olha como o mundo gira, como o tempo passa
+Tô bonitão, olha o meu som tocando na quebrada
+Eu vou de passadão
+E, se eu tiver na pista, passo e busco ou, se não
+Vou chamar outra loirinha
+Fez a vontade da mãe, limpou todinha a casa
+Hoje essa mercenária se prepara
+
+Oi, pra tomar
+Ela vem de longe pra sentar
+Quem diria que eu ia te trombar?
+Mais uma vez eu vou ter que te colo—
+Ha, então vem, então, alô, Xangai
+
+Oi, pra tomar
+Ela vem de longe pra sentar
+Quem diria que eu ia te trombar?
+Mais uma vez eu vou ter que te colocar
+Ah-ah-ah-ah-ah-ah
+
+(E aê, Xarão? Mais uma que vai dar bom)
+(Tá ligado o Leo? Haha, o Leo, o LeoZera)
